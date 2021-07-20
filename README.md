@@ -5,4 +5,4 @@ I am interested in Learning How I oprate.Basically this is my first time creatin
 I was Challenged by Chrispine Tinega during my previous day visit to His place on getting to Document everything that I do.
 I fing this process engaging and fulfilling, Since I am in the process of remoulding and reshaping myself.
 I look forward to being transparent and resourceful in all matters.
-I am lerning not getting angry fast, and also trying being productive/.
+I am lerning not getting angry fast, and also trying being productive.
