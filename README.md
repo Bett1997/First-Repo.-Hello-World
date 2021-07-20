@@ -7,5 +7,5 @@ I fing this process engaging and fulfilling, Since I am in the process of remoul
 I look forward to being transparent and resourceful in all matters.
 I am lerning not getting angry fast, and also trying being productive.
 
-I am Curious to learn.. and Dsign Staff..
+I am Curious to learn.. and Design Staff..
 
